@@ -7,7 +7,7 @@
 - 💞️ I’m not looking to collaborate
 - 🤔 I’m not looking for help with my mental illness
 - 💬 Ask me what you want, I probably won't answer anyway
-- 📫 How to reach me: the nerdiest social media: discord (*@enrtarr*)
+- 📫 How to reach me: the nerdiest social media, discord (*@enrtarr*)
 - 😄 Pronouns: `who/cares`
 - ⚡ Fun fact: **[click me](https://www.youtube.com/watch?v=dQw4w9WgXcQ)**
 
