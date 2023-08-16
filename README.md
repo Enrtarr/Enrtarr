@@ -1,5 +1,4 @@
-### Hi there 👋
-
+# Hi there 👋
 
 ## About me:
 
@@ -17,6 +16,7 @@
 
 > "Never argue with an idiot. They will drag you down to their level and beat you with experience."
 - Mark Twain
+
 > "Sounds honest to me."
 - Enrtarr
 
