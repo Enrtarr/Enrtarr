@@ -6,7 +6,7 @@
 - 🌱 I’m currently learning lots of things
 - 💞️ I’m not looking to collaborate
 - 🤔 I’m not looking for help with my mental illness
-- 💬 Ask me about 
+- 💬 Ask me what you want, I probably won't answer anyway
 - 📫 How to reach me: the nerdiest social media: discord (*@enrtarr*)
 - 😄 Pronouns: `who/cares`
 - ⚡ Fun fact: **[click me](https://www.youtube.com/watch?v=dQw4w9WgXcQ)**
@@ -16,6 +16,7 @@
 
 > "Never argue with an idiot. They will drag you down to their level and beat you with experience."
 - Mark Twain
+
 
 > "Sounds honest to me."
 - Enrtarr
